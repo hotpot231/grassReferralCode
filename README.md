@@ -3,7 +3,7 @@
 
 Referral Code: 9cVL80Z2ObqAA9N
 
-🔗 Link: [https://app.getgrass.io/register/?referralCode=9cVL80Z2ObqAA9N]https://app.getgrass.io/register/?referralCode=9cVL80Z2ObqAA9N
+🔗 Link: https://app.getgrass.io/register/?referralCode=9cVL80Z2ObqAA9N
 
 📣 Farming free tokens in the extension, how to start?
 
